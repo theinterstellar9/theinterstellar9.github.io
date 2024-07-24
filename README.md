@@ -1,3 +1,5 @@
-# the interstellar9
 - [https://www.youtube.com/@theInterstellar9](https://www.youtube.com/@theInterstellar9)
 - [https://www.reddit.com/user/Difficult_Volume_540/](https://www.reddit.com/user/Difficult_Volume_540/)
+- [https://www.quora.com/profile/Phuong-Khanh-Tang-2](https://www.quora.com/profile/Phuong-Khanh-Tang-2)
+- [https://x.com/PhuongKhan91534](https://x.com/PhuongKhan91534)
+- [https://medium.com/@theInterstellar](https://medium.com/@theInterstellar)
